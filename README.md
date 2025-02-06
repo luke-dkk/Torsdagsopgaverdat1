@@ -1,2 +1,3 @@
-# Torsdagsopgaverdat1
-rep. til torsdagsopgaver
+cph-lp373@cphbusiness.dk
+
+Luke B. Persson
